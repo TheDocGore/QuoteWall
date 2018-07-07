@@ -149,3 +149,5 @@
 "I don't wanna feel like a Native American" - Alex
 
 "What?" - Kevin
+
+"You look kinda booty." - Luke
