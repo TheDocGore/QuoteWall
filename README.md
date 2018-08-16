@@ -151,3 +151,5 @@
 "What?" - Kevin
 
 "You look kinda booty." - Luke
+
+"I might join you guys, but I hit the shutdown button so...... *leaves discord*" - Barrett
