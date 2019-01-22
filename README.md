@@ -153,3 +153,5 @@
 "You look kinda booty." - Luke
 
 "I might join you guys, but I hit the shutdown button so...... *leaves discord*" - Barrett
+
+"Don't put the person who professionally flicks lights on and off and the man who is an engineer in the same room." - Brett
